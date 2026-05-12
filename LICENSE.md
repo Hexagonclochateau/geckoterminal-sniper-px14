@@ -1,4 +1,4 @@
-# 
+# premium geckoterminal sniper bot | new-token-detection + snipe-list-management is the best geckoterminal sniper bot, featuring new-token-detection and snipe-list-management. Fast,
 
 
 
